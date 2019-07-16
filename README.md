@@ -1,5 +1,5 @@
 # Gangsta Rap Nigga
-[Intro: Murder Mike and (Du-Rag)]
+-[Intro: Murder Mike and (Du-Rag)]
 (Yeah, mother fucker)
 Sup nigga
 (Gangsta Rap, nigga!)
